@@ -8,6 +8,8 @@ I graduated from the Moscow State University in 2023 with the masters degree in 
 
 
 I did Aliyah in 2023 with my husband and we live in Rehovot. I like reading classic, cooking and learning languages.
+
+
 עכשיו אני לומד באולפן ואני חושב שבקרוב אוכל לדבר עברית בצורה שוטפת יותר
 
 [Funny minipigs compilation](https://youtu.be/AvuG2oWhdKQ?si=tIh8XwHf-24uAde9&t=13)
